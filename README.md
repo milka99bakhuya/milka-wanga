@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @milkabakhuya
-- 👀 I’m interested in  github skilis
+- 👀 I’m interested in  github skills
 - 🌱 I’m currently learning  at kibu
 - 💞️ I’m looking to collaborate on any work
 - 📫 How to reach me ...whatsapp
